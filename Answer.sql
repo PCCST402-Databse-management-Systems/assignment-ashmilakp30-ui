@@ -1,6 +1,2 @@
-kkbvhjknn
-kjbkjkj
-kjbknbknb
-bbjbj
-kjbkbk
+wertyq
 
